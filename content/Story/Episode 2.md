@@ -1,3 +1,4 @@
+
 We open to [[The Swill Shell Pirates]] beaten and worn from their recent scuffle and aboard their newly commandeered marine ship in open waters. The crew decide they should hurriedly make their way back to [[Six Piers Island]]and hide out for a while at a much lesser used port.
 
 With a relatively easy journey back they find themselves docked at [[pier 6]] and seemingly alone for now. [[Captain Estefin Swill|Captain Swill]] and [[Don Maishell|Don]] head into town for supplied to fix up their new vessel from the recent battle scars as well as find some more deckhands to man the large war ship. Though their first stop was to visit [[Mother Sue]] and see if she might have any older boys in willing to work aboard their ship.
@@ -16,7 +17,7 @@ After getting his attention the crew was able to persuade him with some coin and
 
 In their last attempt to find more suitable members they headed to the local sheriffs office in an attempt to free some criminals as payment for coming aboard. After talking to a number of the prisoners through magical messaging outside the prison walls, they landed on a potential member who called himself [[Tooth]]. Upon asking the front desk a few questions as to the nature of [[Tooth]]'s crime and sentencing. It was revealed he had been locked up for drunken disorderly conduct and punching a dog in the face.
 
-[[Captain Estefin Swill|Captain Swill]] and [[Don Maishell|Don]] are particularly troubled by the dog punching part and head back outside to message [[Tooth]] again to question him further about this.
+[[Captain Estefin Swill|Captain Swill]] and [[Don Maishell|Don]] are particularly troubled by the dog punching part and head back outside to message [[Tooth]] again to question him further about this.  
 
 [[Tooth]] admits to having punched the dog but claims it was self defense and the dog started biting him out of no where. After a quick insight by the gang it appears he's telling the truth. The crew then quickly post his bail after a short discussion about no future dog punching. [[Captain Estefin Swill|the Captain]] and [[Don Maishell|Don]] begin head back to [[pier 6]] to meet with [[Tik' Nik']] and their new recruits, while [[Merri Lightningbolt|Merri]] continues to rest below deck.
 

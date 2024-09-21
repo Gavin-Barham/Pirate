@@ -1,1 +1,1 @@
-In order to become an Admiral a Vice Admiral must be selected by [[The World Government|the government]]'s elder council, and [[The Fleet Admiral]]
+In order to become an Admiral a Vice Admiral must be selected by [[The World Government|the government]]'s elder council, and [[The Fleet Admiral]]    

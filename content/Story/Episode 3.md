@@ -18,4 +18,4 @@ Late that night the cargo arrived and was loaded aboard the new warship, before 
 
 The next morning our crew awakens and begins the finishing touches on getting the vessel painted before heading out to [[Isle Rose]]. The crew made it a few day's outside the island before nearly having a run in with a massive tentacled creature, though luckily the crew swiftly jumped into action removing them from any danger before it was too late.
 
-With danger recently evaded and several days travel left to go, though the wind at their backs the crew
+With danger recently evaded and several days travel left to go, though the wind at their backs the crew  
