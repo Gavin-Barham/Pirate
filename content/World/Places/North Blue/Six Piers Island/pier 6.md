@@ -1,0 +1,1 @@
+The north wester most pier of [[Six Piers Island]], and is in close proximity to [[West Dicksy's]] and [[Mother Sue's Orphanage for wayward children]].

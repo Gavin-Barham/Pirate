@@ -1,0 +1,1 @@
+The decedents of [[The 20 founding kings and queens]] of [[The World Government]]. They live in [[Marie Jois]] a large castle city built atop [[the red line]].

@@ -1,0 +1,1 @@
+A fast stretch of ocean that wraps the circumference of the entire globe. The only way's to enter the grand line are via [[Reverse Mountain]] or try to enter through [[The Calm Belt]] and surely die.

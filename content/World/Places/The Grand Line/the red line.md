@@ -1,0 +1,1 @@
+A giant red rock mountain that wraps around the globe in a straight line literally dividing the planet in two. It is said to stretch from the sea floor to thousands of meters high. [[Reverse Mountain]] is a natural feature of this vast mountain structure.

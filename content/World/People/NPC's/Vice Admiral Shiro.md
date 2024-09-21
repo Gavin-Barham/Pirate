@@ -1,0 +1,1 @@
+A marine vice admiral typically in command of a small fleet somewhere in the grand line. He stands around 6'5" with large wide shoulders and a massive scar across the right side of his face from hairline to chin.

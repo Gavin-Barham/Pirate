@@ -1,0 +1,1 @@
+Ethan Moorcaster is a 15 year old boy from [[Mother Sue's Orphanage for wayward children]]. He's a short skinny boy, with auburn hair and a freckled face. Now working for [[The Swill Shell Pirates]]

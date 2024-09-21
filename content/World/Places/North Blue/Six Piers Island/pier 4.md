@@ -1,0 +1,3 @@
+One of the central piers of the island mainly used for loading and unloading cargo from passing vessels as well as a large ship yard for repairs. This pier is closest to the dock foreman's office, as well as the lumber yard.
+
+Before joining [[The Swill Shell Pirates]], this was the main pier [[Keith]] could be found working. As well this is the most common place to find job postings for shipping vessels and mercenaries. 

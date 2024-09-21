@@ -1,0 +1,1 @@
+Dr. Stein is a master artificer and a former protege to the world famous [[Dr.  Leh'Jitimus]]. He currently resides on [[Isle Rose]] as the lead scientist of the islands many laboratories.

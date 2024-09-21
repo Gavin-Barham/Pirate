@@ -1,0 +1,1 @@
+Bar tender and sole proprietor of [[West Dicksy's]] saloon.

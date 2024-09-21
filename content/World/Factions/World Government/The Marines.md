@@ -1,0 +1,1 @@
+The military powerhouse formed under the banner of [[The World Government]]. It is mades up the majority of the military branch. 
