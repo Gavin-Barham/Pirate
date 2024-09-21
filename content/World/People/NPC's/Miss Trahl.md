@@ -1,5 +1,5 @@
 Description:
-	An middle aged human woman of age 38, She has short black hair with a bit of a bob cut, and glasses. Unlike her mother [[Mother Sue]], she gives off a much colder vibe on the surface, though to the children of the orphanage she shows love and kindness much like [[Mother Sue]].
+An middle aged human woman of age 38, She has short black hair with a bit of a bob cut, and glasses. Unlike her mother [[Mother Sue]], she gives off a much colder vibe on the surface, though to the children of the orphanage she shows love and kindness much like [[Mother Sue]].
 
 Miss Tristan Trahl was the first orphan to ever come to [[Mother Sue's Orphanage for wayward children]] before it's conception, when she was found by [[Mother Sue]] crying from inside a waste bin.
 

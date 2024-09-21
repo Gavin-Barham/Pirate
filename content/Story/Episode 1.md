@@ -1,13 +1,12 @@
-
 We start our adventure roughly a year since the formation of [[The Swill Shell Pirates]] by its founding members, [[Captain Estefin Swill]], and his crew of adoptive siblings from [[Mother Sue's Orphanage for wayward children]], [[Tik' Nik']] and [[Don Maishell]], as well as a cheery sea elf looking to escape the binds of commitment named [[Merri Lightningbolt]]. The crew is currently docked on the north west side of [[Six Piers Island]] their home turf.
 
 [[Merri Lightningbolt|Merri]] caught word from a dock worker on the east side of the island that [[The Marines|the marines]] were moving a large chest from the island to somewhere in the [[The Grand Line|Grand Line]].
 
-The crew planned to ambush to marines at sea and guise themselves as a fishing crew just off the island near [[pier 1]] where the marine's vessel was waiting for its payload. 
+The crew planned to ambush to marines at sea and guise themselves as a fishing crew just off the island near [[pier 1]] where the marine's vessel was waiting for its payload.
 
 Meanwhile [[Captain Estefin Swill|Estefin]] and [[Merri Lightningbolt|Merri]] decided to try to gain travel with the Marines to try to get on the inside. They went with cross dressing as women and flirting with the sailors in order to convincing them to let them travel on board with them to another island. This attempt however failed and [[The Marines|the marines]] seemed to only be focused on their own business at hand.
 
-After this failed effort [[Captain Estefin Swill|Captain Swill]] and [[Merri Lightningbolt|Merri]] headed into the water to ride in tow with the marine vessel. [[Merri Lightningbolt|Merri]] was hiding underneath the marine vessel with his ability to breath under water, while [[Captain Estefin Swill|the Captain]] used some pieces of kelp to hide just above the waters surface.  
+After this failed effort [[Captain Estefin Swill|Captain Swill]] and [[Merri Lightningbolt|Merri]] headed into the water to ride in tow with the marine vessel. [[Merri Lightningbolt|Merri]] was hiding underneath the marine vessel with his ability to breath under water, while [[Captain Estefin Swill|the Captain]] used some pieces of kelp to hide just above the waters surface.
 
 After some time [[The Marines|the marines]] left port at [[Six Piers Island]] heading to some unknown location in the [[The Grand Line|Grand Line]] and were hastily followed by [[Old Dorothy]] and it's current crew of first mate [[Don Maishell]] and fisherman extraordinaire [[Tik' Nik']].
 

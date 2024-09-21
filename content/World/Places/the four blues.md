@@ -1,1 +1,1 @@
-The four blues [[The North Blue]], South Blue, East Blue, and West Blue are vast stretches of ocean home to many islands and people. These stretches of ocean are isolated from each other either by [[The Grand Line]] or by [[the red line]] depending on which border. 
+The four blues [[The North Blue]], South Blue, East Blue, and West Blue are vast stretches of ocean home to many islands and people. These stretches of ocean are isolated from each other either by [[The Grand Line]] or by [[the red line]] depending on which border.
